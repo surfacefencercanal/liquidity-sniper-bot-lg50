@@ -1,4 +1,4 @@
-# 
+# elite Token Sniper for liquidity sniper bot | front-running & bundle-transactions offers the most advanced liquidity sniper bot, with front-running and bundle-transactions. Ideal
 
 
 
